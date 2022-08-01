@@ -1,0 +1,1 @@
+# Zomato-Clone![screencapture-file-C-Users-dell-Desktop-Hardik-zomato-index-html-2022-08-01-17_06_02](https://user-images.githubusercontent.com/109802205/182152214-3b217e78-a896-4fe1-95bd-df60b5fca36d.png)
